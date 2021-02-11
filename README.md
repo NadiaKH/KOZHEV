@@ -31,7 +31,7 @@
       
   * 50g grated chocolate or 100g curls, to decorate
       - или то, или другое  
-
+  * tropical fruit of your choice, sliced, then each slice cut into triangles or the shapes required for your design (we used mangoes, kiwis, pineapple and dragon fruit)
 
 
 Задание
