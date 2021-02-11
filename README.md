@@ -25,14 +25,18 @@
 Например:
   * couple of handfuls fresh cherries , pitted, plus extra to serve
       - как понять где обозначено количество 
-      
+  
+  
   * lime wedges, lime zest and mint leaves, to decorate
       - как понять, что тут сразу несколько продуктов 
-      
+  
+  
   * 50g grated chocolate or 100g curls, to decorate
-      - или то, или другое  
+      - или то, или другое 
+  
+  
   * tropical fruit of your choice, sliced, then each slice cut into triangles or the shapes required for your design (we used mangoes, kiwis, pineapple and dragon fruit)
-
+      - проблема определить количество  
 
 Задание
 =======
